@@ -1,1 +1,1 @@
-just trynna learn
+it's just a leap of faith
